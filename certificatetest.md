@@ -1,0 +1,1 @@
+![3354d47541c62bdacb66e09d33cd1402.jpg](..%2F..%2F..%2FUsers%2Figpro%2FOneDrive%2F%D0%E0%E1%EE%F7%E8%E9%20%F1%F2%EE%EB%2F3354d47541c62bdacb66e09d33cd1402.jpg)
